@@ -5,6 +5,12 @@ keywords: food, drink
 ---
 ## Food &#038; Drink
 
+### Rhynd Café 
+Website: https://www.therhynd.com/rhynd-cafe, 
+Phone: (01334) 839218, Facebook: https://www.facebook.com/TheRhynd/  
+The Rhynd Café is open every Friday, Saturday and Sunday from 9am until 5pm. It specialises in locally sourced, freshly cooked food and serves everything from proper coffee, to teas, cakes, lunches and breakfast. 
+&#8220;The Rhynd is an oasis. Helpful staff and, most probably, one of the coolest sports for breakfast in Fife.&#8221;
+
 ### Tayport harbour café
 website: [harbour cafe](https://www.facebook.com/HarbourCafeTayport) (facebook page)
 
